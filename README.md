@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sig-Cog
 - 👀 I’m interested into VR and AI co-creation, I like to work with people & in situ. Artiste plasticienne mêlant analogique et digital.
 - 🌱 I’m currently learning, as always ;-)
-- 💞️ I’m looking to collaborate on exhibition
+- 💞️ I’m looking to collaborate on exhibitions, creations
 - 📫 How to reach me SigCog on twitter
 
 <!---
